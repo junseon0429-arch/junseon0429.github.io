@@ -1,2 +1,1 @@
-# junseo0429.github.io
-a
+# junseon0429.github.io
